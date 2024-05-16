@@ -6,3 +6,4 @@
 5. Use the map and the plan to recall feeling alive or/and remember others can have same feelings or/and thoughts.
 6. Imagine different situations and feelings for the imagined situations.
 7. Map your feelings by repeating and reading about emotions.
+8. Try feeling similar: https://youtu.be/7aUZtDaxS60?feature=shared
